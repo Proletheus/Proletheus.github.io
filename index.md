@@ -9,3 +9,5 @@ Sometimes the negotiations are done with a gun and his infamous whip.
 * Einfallsreich
 * Mutig
 * Mag seinen Vornamen nicht
+
+> Das gehört in ein Museum!
